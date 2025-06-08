@@ -8,6 +8,7 @@
 
 <img src=https://files.catbox.moe/0skb6k.png width=90px>
 -------LINKS AND STUFF-------
+
 https://astrophilian.straw.page
 
 https://open.spotify.com/user/31225xvkhmhxaizfegpg5fuytcpu
