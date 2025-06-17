@@ -11,7 +11,7 @@
 
 -------LINKS AND STUFF-------
 
-<br>https://astrophilian.straw.page
+<br>https://mlpmlpmlp.straw.page
 
 https://open.spotify.com/user/31225xvkhmhxaizfegpg5fuytcpu
 
